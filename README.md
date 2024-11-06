@@ -51,4 +51,4 @@ If you find yourself here... **you’re a true legend.** 🤘
 
 ---
 
-**P.S.** If you want to do something productive... maybe check out [my other repos](https://github.com/) (but not this one 😉).
+**P.S.** If you want to do something productive... maybe check out [my other repos](https://github.com/Lakshya1115) (but not this one 😉).
